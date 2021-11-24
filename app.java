@@ -1,1 +1,2 @@
-welcoime to TDBank
+welcoime to TDBank - your financial partner
+
